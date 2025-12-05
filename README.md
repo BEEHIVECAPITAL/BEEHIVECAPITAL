@@ -7,7 +7,7 @@ A BEEHIVE CAPITAL (Egyesült Királyság) megjelenésével az online pénzügyi 
 
 ## BEEHIVE CAPITAL vélemények
 
-Mielőtt megvizsgálnánk a modern kereskedési szoftver részleteit, érdemes áttekinteni, mit írnak a felhasználók a BEEHIVE CAPITAL-ról, hiszen a legjobb platform sem ér sokat, ha a bróker nem megbízható.
+Mielőtt megvizsgálnánk a modern kereskedési szoftver részleteit, érdemes áttekinteni, mit írnak a felhasználók a BEEHIVE CAPITAL-ról, hiszen a legjobb platform sem ér sokat, ha a bróker nem megbízható ([HackMD](https://hackmd.io/8ghXPt-9Q6e6XfVAnjzFpQ), [Medium](https://medium.com/@olgavaeisk/beehive-capital-v%C3%A9lem%C3%A9nyek-vajon-tisztess%C3%A9ges-br%C3%B3ker-vagy-sem-8896abe3c406?postPublishedType=repub)).
 
 Azok között, akik a BEEHIVE CAPITAL-t választották befektetéseik kezelésére, alig találni semleges vagy negatív véleményt. A kommentelők túlnyomó többsége tisztességesnek és ügyfélközpontúnak tartja a brókert. A Mobius Trader 7 használatát pedig rendkívül kényelmesnek ítélik. Véleményük szerint:
 
